@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=seil-directory&color=2cb0ae&style=plastic&label=)
+![](https://files.catbox.moe/fwg2yp.png)
   
 ![ac](https://files.catbox.moe/bxf9bn.png)
   
