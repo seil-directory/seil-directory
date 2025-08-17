@@ -1,6 +1,6 @@
 
+  ![ac]([https://files.catbox.moe/wy8v8x.png)](https://files.catbox.moe/fwg2yp.png))
 
-  
 <p align="center">sona   𓈈⠀⠀ 𝅄  ⠀᧔◍᧓  ovxrdose   𓂃       ੭୧        𓂃 she , her
 
   ![ac](https://files.catbox.moe/wy8v8x.png)
