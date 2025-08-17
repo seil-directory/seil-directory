@@ -1,4 +1,4 @@
-##  !(https://files.catbox.moe/fwg2yp.png)
+ !(https://files.catbox.moe/fwg2yp.png)
 
   
 <p align="center">sona   𓈈⠀⠀ 𝅄  ⠀᧔◍᧓  ovxrdose   𓂃       ੭୧        𓂃 she , her
