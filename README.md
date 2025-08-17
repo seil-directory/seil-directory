@@ -1,4 +1,4 @@
- ![ac](https://postimg.cc/56jChbm8)
+
 
 <p align="center">sona   𓈈⠀⠀ 𝅄  ⠀᧔◍᧓  ovxrdose   𓂃       ੭୧        𓂃 she , her
 
