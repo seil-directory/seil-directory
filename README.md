@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=seil-directory&color=2cb0ae&style=plastic&label=)
   
-![ac](https://files.catbox.moe/bxf9bn.png)
+![ac](https://files.catbox.moe/fwg2yp.png)
 
 <p align="center">sona   𓈈⠀⠀ 𝅄  ⠀᧔◍᧓  ovxrdose   𓂃       ੭୧        𓂃 she , her
 
